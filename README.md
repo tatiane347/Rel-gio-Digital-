@@ -42,3 +42,6 @@ Confira o código-fonte completo neste repositório:
 
 Saiba mais sobre mim e acompanhe meus projetos:
 👩‍💻 https://www.linkedin.com/in/tatiane-nascimento-68b0622bb?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+
+![17447372815473660200307405573358](https://github.com/user-attachments/assets/e8b76d04-9390-4219-85d9-2e024ebc4afb)
+
